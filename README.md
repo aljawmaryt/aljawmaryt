@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @aljawmaryt
-- 👀 I’m interested in ... 
-- 🌱 I’m currently learning ... coding and disgan 
+- 👋 Hi, I’m Tareq Aljawmary
+- 👀 I’m interested in .. disgan, computres, coding and some stuff about computres. 
+- 🌱 I’m currently learning ... coding and disgan
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... My number or email
 - 2897889965
