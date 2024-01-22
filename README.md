@@ -6,7 +6,8 @@
 - 2897889965
 - aljawmaryt@gmail.com
 - 😄 Pronouns: ... He/Him
-- ⚡ Fun fact: ...
+- ⚡ fun and fact....
+- I speak Arabic and English.
 
 <!---
 aljawmaryt/aljawmaryt is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
