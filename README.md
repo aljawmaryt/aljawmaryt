@@ -1,6 +1,6 @@
 # Hello there👋
 
-- 👋 Hi, I’m Tareq Aljawmary
+- 👋 Hi, I’m Tareq a 18 years old promgrammer who is intersted to do computre.
 - 👀 I’m interested in .. disgan, computres, coding and some stuff about computres. 
 - 🌱 I’m currently learning ... coding and disgan
 - 💞️ I’m looking to collaborate on ...
