@@ -4,9 +4,7 @@
 - 👀 I’m interested in .. disgan, computres, coding and some stuff about computres. 
 - 🌱 I’m currently learning ... coding and disgan
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ... My number or email
-- 2897889965
-- aljawmaryt@gmail.com
+- 📫 How to reach me ... My number or email, 2897889965, aljawmaryt@gmail.com
 - 😄 Pronouns: ... He/Him
 - ⚡ fun and fact....
 - I speak Arabic and English.
